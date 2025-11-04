@@ -1,7 +1,7 @@
 ## Hi 👋
 
 -----------------------------------------------------------
-🎓 FMV Işık Üniversitesi | Bilişim Güvenliği Teknolojisi | 
+🎓 FMV Isık University | Information Security Technology | 
 -----------------------------------------------------------
 
 📧 İletişim

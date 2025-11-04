@@ -1,5 +1,14 @@
-## Hi there 👋
+## Hi 👋
 
+-----------------------------------------------------------
+🎓 FMV Işık Üniversitesi | Bilişim Güvenliği Teknolojisi | 
+-----------------------------------------------------------
+
+📧 İletişim
+
+E-posta: [25bilg0023@isik.edu.tr]
+
+LinkedIn: [www.linkedin.com/in/murat-can-bilgin-047847183]
 <!--
 **MuratCanBILGIN/MuratCanBILGIN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -8,7 +8,7 @@
 
 📧 İletişim
 
-🔗E-posta: [25bilg0023@isik.edu.tr]
+🔗E-posta: [muratcanbilgin25@gmail.com]
 
 🔗LinkedIn: [www.linkedin.com/in/murat-can-bilgin-047847183]
 
